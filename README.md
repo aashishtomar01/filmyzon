@@ -1,1 +1,1 @@
-# filmyzon
+Many thanks for visiting our website. We firstly tell you the purpose of this website. After much deep research, our team found that not much information about Celebrities, Athletes, Politicians, Businessmen, and Movie Reviews has been given on the Internet. But there are still many topics that no one has covered and people need information about them. So our team thought to cover these topics. So that people get the right information. In https://filmyzon.com you will find content about Bollywood, sports, Movie Reviews and Trailers, and many more. 
